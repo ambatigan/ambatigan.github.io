@@ -1,3 +1,3 @@
-## Ganga Ambati's GitHub Pages
+## Techno Pages
 
 
